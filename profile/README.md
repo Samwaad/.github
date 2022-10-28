@@ -1,1 +1,1 @@
-# Welcome to samwaad
+# Welcome to Samwaad
